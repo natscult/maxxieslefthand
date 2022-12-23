@@ -2,7 +2,7 @@
 - 👀 I’m interested in many things like greek and blacksmithing
 - 🌱 I’m currently learning greek and trigedasleng
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me maxwellriegel@gmail.com
+- 📫 How to reach me spencer </3#2844
 
 <!---
 maxxieslefthand/maxxieslefthand is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
